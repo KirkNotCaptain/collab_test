@@ -7,3 +7,7 @@ Answer:
 Who tf knows but Billy Bob Thornton is a treasure!
 
 Heeeeee hee heee
+
+He IS a Treasure!  Here is a real riddle for you. . .
+
+What is brown with a head and a tail, but has no legs, but can still do flips?
